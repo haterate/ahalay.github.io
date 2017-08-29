@@ -1,1 +1,0 @@
-# ahalay.github.io
